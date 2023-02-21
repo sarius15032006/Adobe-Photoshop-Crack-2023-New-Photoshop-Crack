@@ -1,0 +1,1 @@
+# Adobe-Photoshop-Crack-2023-New-Photoshop-Crack
